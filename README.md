@@ -1,0 +1,1 @@
+# sample_ayush_pic
